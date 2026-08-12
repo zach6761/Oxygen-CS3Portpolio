@@ -9,6 +9,8 @@ Hello! I'm **Zach Andrean D. Fortu**, a student at **Philippine Science High Sch
 
 [Instagram](https://www.instagram.com/@fortuforthree)
 
+[YouTube](https://youtu.be/dQw4w9WgXcQ?si=I7OPmbUZx1HcRxAp)
+
 ---
 ### Meme Library ni Zach:
 ![son what is this](image.png)
