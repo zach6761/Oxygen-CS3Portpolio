@@ -11,11 +11,4 @@ Hello! I'm **Zach Andrean D. Fortu**, a student at **Philippine Science High Sch
 
 [YouTube](https://youtu.be/dQw4w9WgXcQ?si=I7OPmbUZx1HcRxAp)
 
----
-### Meme Library ni Zach:
-![son what is this](image.png)
-![triple t](image-1.png)
-![dihctator mbappe](image-2.png)
-![spoon](image-3.png)
-![peyk smile delete emotions usad ka na boi](image-4.png)
-![cooked](image-5.png)
+
